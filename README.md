@@ -9,7 +9,7 @@
 </div>
 
 <details>
-<summary>▶ click here</summary>
+<summary> click here</summary>
 
 <br>
 
