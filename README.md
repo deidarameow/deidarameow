@@ -9,3 +9,5 @@
 *Art is an Explosion.*
 
 </div>
+
+$\texttt{\color{#767DB4}Art is an Explosion
