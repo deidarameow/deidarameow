@@ -61,7 +61,7 @@ My pronouns are ʜᴇ/ʜɪᴍ.
 
 </td>
 <td>
-    ౿  Sometimes it's hard for me to express myself, or maybe to express to you what I feel.
+            ౿  Sometimes it's hard for me to express myself, or maybe to express to you what I feel.
 Maybe because I still feel suffocated, or confused by the knot that forms in my chest every time I write to you, every time I think of you, and every time I see that photo of you on my screen.
 I suppose that feeling of being suffocated is nothing more than the confusion I get from wanting you close, but not too close: close enough to hear your voice, but not close enough to forget that you're not mine.
 
