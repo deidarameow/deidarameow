@@ -23,7 +23,8 @@
 
 </td>
 <td>
-              ಄ wanna know about me? ⇩ ⇩ 
+                                          ಄ wanna know about me? ⇩ ⇩ 
+              
   
  ౿ Call me Dei, or maybe Elias. That's my name! ₍₍ ⚞(˶ˆᗜˆ˵)⚟ ⁾⁾
 
