@@ -61,3 +61,15 @@ My pronouns are ʜᴇ/ʜɪᴍ.
 
 </td>
 <td>
+    ౿  Sometimes it's hard for me to express myself, or maybe to express to you what I feel.
+Maybe because I still feel suffocated, or confused by the knot that forms in my chest every time I write to you, every time I think of you, and every time I see that photo of you on my screen.
+I suppose that feeling of being suffocated is nothing more than the confusion I get from wanting you close, but not too close: close enough to hear your voice, but not close enough to forget that you're not mine.
+
+Sometimes I imagined finding you in other bodies, in other phrases, but it was, is, absurd. How could I have thought something like that? How could I have looked for in other people that connection that only happens once in a lifetime. They didn't know how to stay, not like you; they didn't know how to leave, not like you.
+It bothers me that I searched for what you make me feel in people who, in the end, no matter how many beautiful things they told me, would never be like those times when you said something lovely about my eyes.
+
+Ask me to kneel for you, ask me to touch you, but ask that I don't do it for too long. Because if I stay one second longer, I'll start to believe things that don't exist. And I don't want you to see me like that, but I don't want you to stop looking at me. And if you're going to see me love you, let your eyes not be the ones that seem to mean something, because it scares me, it scares me so much to keep believing that someday I'll have you, that I'll have you.
+
+I know I was wrong, yesterday, today, always. I looked for what you were in other people who had none of you: Not even your hair color, your favorite artist, your skill with the guitar, nor your strange way of making me feel that life is worth living.
+But still I insisted, as if I could reconstruct you from foreign parts, as if that would be enough.
+And it never was. It was never enough. Because it wasn't you.
