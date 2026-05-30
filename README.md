@@ -7,3 +7,17 @@
 ## 𝒜𝓇𝓉 𝒾𝓈 𝒶𝓃 𝐸𝓍𝓅𝓁𝑜𝓈𝒾𝑜𝓃.
 
 </div>
+
+<details>
+<summary>▶ click here</summary>
+
+<br>
+
+
+💥 Deidara fan #1
+
+🎨 He/him. 16 y/o.
+
+🐦 Explosive bird enjoyer.
+
+</details>
