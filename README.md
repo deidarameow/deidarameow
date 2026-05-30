@@ -23,11 +23,10 @@
 </td>
 <td>
 
-Call me Dei, or maybe Elias. That's my name! ˶ᵔ ᵕ ᵔ˶
+౿ Call me Dei, or maybe Elias. That's my name! ˶ᵔ ᵕ ᵔ˶
 
-My pronouns are he/him.
-
-I love watching Naruto so much. It makes me feel so happy and smile all the time. (Although it's also very sad.)
+My pronouns are he/him.                                           
+౿ I love watching Naruto so much. It makes me feel so happy and smile all the time. (Although it's also very sad.)
 
 </td>
 </tr>
