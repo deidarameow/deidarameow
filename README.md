@@ -4,7 +4,7 @@
 
 <div align="center">
 
-## 𝒜𝓇𝓉 𝒾𝓈 𝒶𝓃 𝐸𝓍𝓅𝓁𝑜𝓈𝒾𝑜𝓃.
+## ʰᵉʸ ! ᵃʳᵗ ⁱˢ ᵃⁿ ᵉˣᵖˡᵒˢⁱᵒⁿ
 
 </div>
 
@@ -23,7 +23,7 @@
 </td>
 <td>
 
-౿ Call me Dei, or maybe Elias. That's my name! ˶ᵔ ᵕ ᵔ˶
+౿ Call me Dei, or maybe Elias. That's my name! ₍₍ ⚞(˶ˆᗜˆ˵)⚟ ⁾⁾
 
 My pronouns are he/him.                                           
 ౿ I love watching Naruto so much. It makes me feel so happy and smile all the time. (Although it's also very sad.)
