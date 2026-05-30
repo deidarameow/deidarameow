@@ -1,13 +1,3 @@
 <div align="center">
   <img src="https://i.pinimg.com/originals/00/f1/e3/00f1e3912105661111c27283b1e7a103.gif" width="500">
 </div>
-
-<div align="center">
-
-# 💥 Art is an Explosion 💥
-
-*Art is an Explosion.*
-
-</div>
-
-$\texttt{\color{#767DB4}Art is an Explosion
