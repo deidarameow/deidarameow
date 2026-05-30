@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://media.tenor.com/XXXXXXXX.gif" width="500">
+<img src=["https://media.tenor.com/XXXXXXXX.gif" width="500">](https://github.com/deidarameow/deidarameow/issues/2#issue-4554031738)
 
 # 💥 DEIDARA 💥
 
