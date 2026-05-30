@@ -77,7 +77,8 @@ And it never was. It was never enough. Because it wasn't you.
 <div align="center">
   <img src="https://private-user-images.githubusercontent.com/278281897/600482253-1727f200-f049-4e2f-8e05-6f05c68de4a5.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3ODAxNDA1OTEsIm5iZiI6MTc4MDE0MDI5MSwicGF0aCI6Ii8yNzgyODE4OTcvNjAwNDgyMjUzLTE3MjdmMjAwLWYwNDktNGUyZi04ZTA1LTZmMDVjNjhkZTRhNS5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNTMwJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDUzMFQxMTI0NTFaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1mMTIxYWE5YjA2NTQzMGYwNTVmMDJhNDRmZjk5YjEwNGU1MDAxOTg1MmMzY2E5MTA5YTI2MWE4NzAzNjM1MDNmJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZnaWYifQ.sVQNt6Nhzgal0I7rlK89VM9GdunSjFjV8g9_3RuHNUI" width="500">
   
-</div>
+<div align="center">
 
-♡⸝⸝                                         ⁱᵐ ʳᵉᵃˡˡʸ ⁱⁿ ˡᵒᵛᵉ ʷⁱᵗʰ ᵗᵒᵇⁱᵈᵉⁱ 
+♡                                         ⁱᵐ ʳᵉᵃˡˡʸ ⁱⁿ ˡᵒᵛᵉ ʷⁱᵗʰ ᵗᵒᵇⁱᵈᵉⁱ 
                                                       ˢᵒ ᶜᵘᵗᵉ
+<div align="center">
