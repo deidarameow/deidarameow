@@ -1,3 +1,2 @@
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/xxxxxxxx-xxxx-xxxx" width="500">
-</div>
+  <img src="https://github.com/deidarameow/deidarameow/issues/2#issue-4554031738"
