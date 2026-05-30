@@ -79,5 +79,5 @@ And it never was. It was never enough. Because it wasn't you.
   
 </div>
 
-ⁱᵐ ʳᵉᵃˡˡʸ ⁱⁿ ˡᵒᵛᵉ ʷⁱᵗʰ ᵗᵒᵇⁱᵈᵉⁱ 
-ˢᵒ ᶜᵘᵗᵉ
+♡⸝⸝                                         ⁱᵐ ʳᵉᵃˡˡʸ ⁱⁿ ˡᵒᵛᵉ ʷⁱᵗʰ ᵗᵒᵇⁱᵈᵉⁱ 
+                                                      ˢᵒ ᶜᵘᵗᵉ
