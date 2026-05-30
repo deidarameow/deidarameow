@@ -37,3 +37,7 @@ My pronouns are ʜᴇ/ʜɪᴍ.
 
 
 ɪ ʙᴇʟɪᴇᴠᴇ ᴛʜᴀᴛ ᴛʜᴏꜱᴇ ᴡɪᴛʜ ᴅᴇᴇᴘ ʜᴇᴀʀᴛᴀᴄʜᴇ ᴀʀᴇ ᴛʜᴇ ᴏɴᴇꜱ ᴡʜᴏ ʜᴀᴠᴇ ʟᴀᴄᴋᴇᴅ ʟᴏᴠᴇ. ᴛʜᴇ ᴘᴀꜱᴛ ʜᴜʀᴛꜱ ʟɪᴋᴇ ᴀ ꜱᴛɪɴɢ, ᴀɴᴅ ᴍᴀɴʏ ᴘᴇᴏᴘʟᴇ ʜᴏᴘᴇ ᴛᴏ ꜱᴇᴇ ʏᴏᴜ ᴡᴇʟʟ ᴡɪᴛʜᴏᴜᴛ Qᴜᴇꜱᴛɪᴏɴɪɴɢ ᴛʜᴇɪʀ ᴏᴡɴ ᴀᴄᴛɪᴏɴꜱ ᴛᴏᴡᴀʀᴅꜱ ʏᴏᴜ. ᴡʜʏ? ౿ ɪ'ᴍ ᴀʟᴡᴀʏꜱ ᴛʜɪɴᴋɪɴɢ ᴀʙᴏᴜᴛ ᴡʜᴀᴛ ᴏᴛʜᴇʀ ᴘᴇᴏᴘʟᴇ ᴛʜɪɴᴋ ᴏꜰ ᴍᴇ. ᴇᴠᴇɴ ɪɴ ᴠɪᴅᴇᴏ ɢᴀᴍᴇꜱ: ɪ ᴡɪꜱʜ ɪ ᴄᴏᴜʟᴅ ʙᴇ ᴀꜱ ꜱᴏᴄɪᴀʙʟᴇ ᴀɴᴅ ꜰʀɪᴇɴᴅʟʏ ᴀꜱ ᴇᴠᴇʀʏᴏɴᴇ ᴇʟꜱᴇ, ʙᴜᴛ ɪ'ᴍ ᴀꜰʀᴀɪᴅ ᴛᴏ ᴍᴀᴋᴇ ꜰʀɪᴇɴᴅꜱ. ɪꜰ ᴜ ᴡᴀɴᴛ ᴛᴏ ʙᴇ ᴍʏ ꜰʀɪᴇɴᴅ, ᴄᴏᴍᴇ ᴄʟᴏꜱᴇʀ. ɪ ᴡᴏɴᴛ ʀᴇɢᴇᴛ. (¬`‸´¬)
+
+<div align="center">
+  <img src="https://private-user-images.githubusercontent.com/278281897/600480513-2f8cca09-f5b7-4874-bbb9-a5b556cdc124.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3ODAxMzkxMzIsIm5iZiI6MTc4MDEzODgzMiwicGF0aCI6Ii8yNzgyODE4OTcvNjAwNDgwNTEzLTJmOGNjYTA5LWY1YjctNDg3NC1iYmI5LWE1YjU1NmNkYzEyNC5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNTMwJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDUzMFQxMTAwMzJaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT04MjdhYTdiYmZjMWI2NzhkZDczM2NiOTBiYTRlMzE5NjU0OTI5N2FjZTZiMmYxOTA2NWRkMDdjZWVhN2QzNjllJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZnaWYifQ.hJOiDt3SIetthYtJCZxfn4ZNKHtIoG6OBqPKEpzprgc" width="300">
+</div>
