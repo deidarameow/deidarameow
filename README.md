@@ -6,6 +6,8 @@
 
 ## ʰᵉʸ ! ᵃʳᵗ ⁱˢ ᵃⁿ ᵉˣᵖˡᵒˢⁱᵒⁿ
 
+ ಄ wanna know about me? ⇩ ⇩
+
 </div>
 
 <details>
