@@ -27,7 +27,7 @@
   
  ౿ Call me Dei, or maybe Elias. That's my name! ₍₍ ⚞(˶ˆᗜˆ˵)⚟ ⁾⁾
 
-My pronouns are he/him.                                           
+My pronouns are ʜᴇ/ʜɪᴍ.                                          
 ౿ I love watching Naruto so much. It makes me feel so happy and smile all the time. (Although it's also very sad.)
 
 </td>
@@ -35,6 +35,4 @@ My pronouns are he/him.
 </table>
 
 
-I believe that those with deep heartache are the ones who have lacked love. The past hurts like a sting, and many people hope to see you well without questioning their own actions towards you. Why?                                                             
-౿ I'm always thinking about what other people think of me.
-Even in video games: I wish I could be as sociable and friendly as everyone else, but I'm afraid to make friends. If u want to be my friend, come closer. I wont reget. (¬`‸´¬)
+ɪ ʙᴇʟɪᴇᴠᴇ ᴛʜᴀᴛ ᴛʜᴏꜱᴇ ᴡɪᴛʜ ᴅᴇᴇᴘ ʜᴇᴀʀᴛᴀᴄʜᴇ ᴀʀᴇ ᴛʜᴇ ᴏɴᴇꜱ ᴡʜᴏ ʜᴀᴠᴇ ʟᴀᴄᴋᴇᴅ ʟᴏᴠᴇ. ᴛʜᴇ ᴘᴀꜱᴛ ʜᴜʀᴛꜱ ʟɪᴋᴇ ᴀ ꜱᴛɪɴɢ, ᴀɴᴅ ᴍᴀɴʏ ᴘᴇᴏᴘʟᴇ ʜᴏᴘᴇ ᴛᴏ ꜱᴇᴇ ʏᴏᴜ ᴡᴇʟʟ ᴡɪᴛʜᴏᴜᴛ Qᴜᴇꜱᴛɪᴏɴɪɴɢ ᴛʜᴇɪʀ ᴏᴡɴ ᴀᴄᴛɪᴏɴꜱ ᴛᴏᴡᴀʀᴅꜱ ʏᴏᴜ. ᴡʜʏ? ౿ ɪ'ᴍ ᴀʟᴡᴀʏꜱ ᴛʜɪɴᴋɪɴɢ ᴀʙᴏᴜᴛ ᴡʜᴀᴛ ᴏᴛʜᴇʀ ᴘᴇᴏᴘʟᴇ ᴛʜɪɴᴋ ᴏꜰ ᴍᴇ. ᴇᴠᴇɴ ɪɴ ᴠɪᴅᴇᴏ ɢᴀᴍᴇꜱ: ɪ ᴡɪꜱʜ ɪ ᴄᴏᴜʟᴅ ʙᴇ ᴀꜱ ꜱᴏᴄɪᴀʙʟᴇ ᴀɴᴅ ꜰʀɪᴇɴᴅʟʏ ᴀꜱ ᴇᴠᴇʀʏᴏɴᴇ ᴇʟꜱᴇ, ʙᴜᴛ ɪ'ᴍ ᴀꜰʀᴀɪᴅ ᴛᴏ ᴍᴀᴋᴇ ꜰʀɪᴇɴᴅꜱ. ɪꜰ ᴜ ᴡᴀɴᴛ ᴛᴏ ʙᴇ ᴍʏ ꜰʀɪᴇɴᴅ, ᴄᴏᴍᴇ ᴄʟᴏꜱᴇʀ. ɪ ᴡᴏɴᴛ ʀᴇɢᴇᴛ. (¬`‸´¬)
