@@ -66,7 +66,7 @@ Maybe because I still feel suffocated, or confused by the knot that forms in my 
 I suppose that feeling of being suffocated is nothing more than the confusion I get from wanting you close, but not too close: close enough to hear your voice, but not close enough to forget that you're not mine.
 
 Sometimes I imagined finding you in other bodies, in other phrases, but it was, is, absurd. How could I have thought something like that? How could I have looked for in other people that connection that only happens once in a lifetime. They didn't know how to stay, not like you; they didn't know how to leave, not like you.
-It bothers me that I searched for what you make me feel in people who, in the end, no matter how many beautiful things they told me, would never be like those times when you said something lovely about my eyes.
+It bothers me that I searched for what you make me feel in people who, in the end, no matter how many beautiful things they told me, would never be like those times when you said something lovely about my eyes.・・・・・
 
 Ask me to kneel for you, ask me to touch you, but ask that I don't do it for too long. Because if I stay one second longer, I'll start to believe things that don't exist. And I don't want you to see me like that, but I don't want you to stop looking at me. And if you're going to see me love you, let your eyes not be the ones that seem to mean something, because it scares me, it scares me so much to keep believing that someday I'll have you, that I'll have you.
 
