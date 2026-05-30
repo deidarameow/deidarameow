@@ -6,7 +6,6 @@
 
 ## ʰᵉʸ ! ᵃʳᵗ ⁱˢ ᵃⁿ ᵉˣᵖˡᵒˢⁱᵒⁿ
 
- ಄ wanna know about me? ⇩ ⇩
 
 </div>
 
@@ -24,8 +23,9 @@
 
 </td>
 <td>
-
-౿ Call me Dei, or maybe Elias. That's my name! ₍₍ ⚞(˶ˆᗜˆ˵)⚟ ⁾⁾
+              ಄ wanna know about me? ⇩ ⇩ 
+  
+ ౿ Call me Dei, or maybe Elias. That's my name! ₍₍ ⚞(˶ˆᗜˆ˵)⚟ ⁾⁾
 
 My pronouns are he/him.                                           
 ౿ I love watching Naruto so much. It makes me feel so happy and smile all the time. (Although it's also very sad.)
