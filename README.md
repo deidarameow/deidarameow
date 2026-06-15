@@ -6,6 +6,7 @@
 <div align="center">
 
 𝗧𝗵𝗼𝘀𝗲 𝗮𝗿𝗲 𝘁𝗵𝗲 𝘀𝗮𝗺𝗲 𝗲𝘆𝗲𝘀 𝗲𝘃𝗲𝗿𝘆𝗼𝗻𝗲 𝗹𝗼𝗼𝗸𝘀 𝗮𝘁 𝗺𝗲 𝘄𝗶𝘁𝗵.
-𝙱𝚞𝚝 𝚝𝚑𝚊𝚝 𝚑𝚊𝚝𝚛𝚎𝚍 𝚠𝚊𝚜𝚗'𝚝 𝚏𝚘𝚛 𝚖𝚎.
+
+But that hatred wasn't for me
 
 </div>
