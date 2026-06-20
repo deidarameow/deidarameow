@@ -22,7 +22,7 @@
 </td>
 
 <td align="left" width="200">
-<sub>Art is a single brilliant moment.</sub>
+<sub>𝗧𝗵𝗲𝗻 𝘁𝗮𝗸𝗲 𝗺𝗲 𝘄𝗶𝘁𝗵 𝘆𝗼𝘂 𝗶𝗻𝘁𝗼 𝘁𝗵𝗲 𝗱𝗮𝗿𝗸𝗻𝗲𝘀𝘀..</sub>
 </td>
 
 </tr>
