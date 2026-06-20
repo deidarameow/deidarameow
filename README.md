@@ -10,9 +10,23 @@
 𝗯𝘂𝘁 𝘁𝗵𝗮𝘁 𝗵𝗮𝘁𝗿𝗲𝗱 𝘄𝗮𝘀𝗻'𝘁 𝗳𝗼𝗿 𝗺𝗲
 
 </div>
-<div align="center">
-  <img src="https://i.pinimg.com/originals/f1/0f/59/f10f59cdde457429c49601987fa83f08.gif" width="300">
-</div>
+<table align="center">
+<tr>
+
+<td align="right" width="200">
+<sub>Art is not eternal beauty.</sub>
+</td>
+
+<td align="center">
+<img src="(https://i.pinimg.com/originals/f1/0f/59/f10f59cdde457429c49601987fa83f08.gif)" width="300">
+</td>
+
+<td align="left" width="200">
+<sub>Art is a single brilliant moment.</sub>
+</td>
+
+</tr>
+</table>
 
 
 
