@@ -14,7 +14,7 @@
 <tr>
 
 <td align="right" width="200">
-<sub>Art is not eternal beauty.</sub>
+<sub>WHERE IS THE TEXTTT I CANT SEE IT.</sub>
 </td>
 
 <td align="center">
