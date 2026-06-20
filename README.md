@@ -18,7 +18,7 @@
 </td>
 
 <td align="center">
-<img src="(https://i.pinimg.com/originals/f1/0f/59/f10f59cdde457429c49601987fa83f08.gif)" width="300">
+<img src="https://i.pinimg.com/originals/f1/0f/59/f10f59cdde457429c49601987fa83f08.gif" width="300">
 </td>
 
 <td align="left" width="200">
